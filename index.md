@@ -22,4 +22,4 @@ I have been conferred the degreee of Master of Science from the Master's Program
 - [twitter](https://twitter.com/keitol_0)
 
 # Histry
-- 2018 [University of Tsukuba] Completion
+- 2018 [University of Tsukuba](http://www.tsukuba.ac.jp/) Completion
